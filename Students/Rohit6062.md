@@ -12,4 +12,4 @@ Undergraduate in Bsc  Computer Science  from S.M.Joshi College
 
 ### Profile Link
 
-[Rishabh Kr Bothra](https://github.com/Rohit6062)
+[Rohit H Ranaware](https://github.com/Rohit6062)
